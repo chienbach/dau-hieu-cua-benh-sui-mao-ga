@@ -1,4 +1,4 @@
-<p><strong>bieu hien cua benh sui mao ga</strong> xuất hiện sau từ 1-9 tháng có tiếp xúc tình dục không lành mạnh đối với bệnh nhân. Vậy triệu chứng của bệnh mồng gà như thay thế nào? Các chuyên gia phòng khám đa khoa Thái Hà xin giới thiệu tới các bạn các biểu hiện của bệnh mồng gà ở phái mạnh và chị em phụ nữ kèm hình ảnh chi tiết dưới đây:</p>
+<p><a href="http://phongkhamphukhoathaiha.webflow.io/posts/benh-sui-mao-ga">Dấu hiệu sùi mào gà</a> xuất hiện sau từ 1-9 tháng có tiếp xúc tình dục không lành mạnh đối với bệnh nhân. Vậy triệu chứng của bệnh mồng gà như thay thế nào? Các chuyên gia phòng khám đa khoa Thái Hà xin giới thiệu tới các bạn các biểu hiện của bệnh mồng gà ở phái mạnh và chị em phụ nữ kèm hình ảnh chi tiết dưới đây:</p>
 
 <p><img alt="" src="http://phongkhamthaiha.com/media/images/trieu-chung-benh-sui-mao-ga.jpg" style="height:250px; width:400px" /></p>
 
